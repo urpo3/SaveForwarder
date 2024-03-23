@@ -9,3 +9,4 @@ Screenshots of program + features Below '
 ![Näyttökuva (125)](https://github.com/urpo3/SaveForwarder/assets/45339727/195b449f-f8b5-493b-80f4-b313233f2d62)
 ![Näyttökuva (126)](https://github.com/urpo3/SaveForwarder/assets/45339727/2952f390-ebd8-4d39-b2a5-7b310b3e3988)
 ![Näyttökuva (127)](https://github.com/urpo3/SaveForwarder/assets/45339727/05627790-6d62-4059-a330-2017ba9d77e3)
+![Näyttökuva (128)](https://github.com/urpo3/SaveForwarder/assets/45339727/39729181-d860-4733-b605-e54b1ea84e98)
